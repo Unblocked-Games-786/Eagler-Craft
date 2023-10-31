@@ -5,6 +5,3 @@ Eaglercraft
 
 
 
-1 billion coins (limited time)
-
-https://sites.google.com/newheightsacademy.org/freebillioncoinseaglercraft/coingenerator
